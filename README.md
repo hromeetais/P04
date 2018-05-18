@@ -1,0 +1,1 @@
+saaku apguut "git" valoduu
